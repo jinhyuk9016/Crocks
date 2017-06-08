@@ -1,1 +1,4 @@
-
+-FTW we fight! 
+-NO.
+-WHY? 
+-YOu DumB. We CAN't Win!
